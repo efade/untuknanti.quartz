@@ -2,20 +2,23 @@
 ## Di antara pertanyaan yang banyak diucapkan: 
 > Mengapa Islam membolehkan poligini untuk laki-laki padahal itu menyakiti wanita? 
 
-Orang yang bertanya seperti ini bermacam-macam:
-1. Ada yang memang bertanya untuk mendapatkan pencerahan, menghilangkan syubhat dari hatinya, sehingga dia lebih tenang dalam menerima syariat Allah. 
-2. Ada yang bertanya demikian dengan tujuan mencari celah untuk melarang poligini yang sudah jelas dihalalkan Allah _tabaroka wa ta'ala_. Dia berdalil dengan hadits "لا ضرر ولا ضرار", yang artinya _"Tidak boleh melakukan sesuatu yang membahayakan/merugikan diri sendiri dan ataupun orang lain"_. Dia juga berargumen dengan undang-undang berbagai negara yang melarang poligini. Tidak hanya melarang, beberapa bahkan memasukkan poligini dalam tindak kriminal. Seperti itulah yang ada di negara-negara Barat dan sebagian negara-negara Islam yang mengikuti jejak orang kafir. Di sebagian negara-negara itu, laki-laki yang melakukan poligini dipidanakan. Kalaupun tidak, dia disyaratkan untuk mendapat ijin pengadilan atau istri pertama, dan syarat-syarat batil lainnya. Padahal Nabi ﷺ bersabda : 
+Orang yang bertanya seperti ini bermacam-macam keadaannya:
+
+**(1)** Ada yang memang bertanya untuk mendapatkan pencerahan, menghilangkan syubhat dari hatinya, sehingga dia lebih tenang dalam menerima syariat Allah. 
+
+**(2)** Ada yang bertanya demikian dengan tujuan mencari celah untuk melarang poligini yang sudah jelas dihalalkan Allah _tabaroka wa ta'ala_. Dia berdalil dengan hadits "لا ضرر ولا ضرار", yang artinya _"Tidak boleh melakukan sesuatu yang membahayakan/merugikan diri sendiri dan ataupun orang lain"_. Dia juga berargumen dengan undang-undang berbagai negara yang melarang poligini. Negara-negara itu tidak hanya melarang, sebagian bahkan memasukkan poligini dalam tindak kriminal sehingga laki-laki yang melakukan poligini dipidanakan. Kalaupun tidak begitu, laki-laki yang ingin berpoligini disyaratkan untuk mendapat ijin pengadilan atau istri pertama, dan syarat-syarat batil lainnya. Padahal Nabi ﷺ bersabda : 
    > **«مَا بَالُ أقْوَامٍ يَشْتَرِطُونَ شُرُوطًا ليسَ في كِتَابِ اللَّهِ؟! مَنِ اشْتَرَطَ شَرْطًا ليسَ في كِتَابِ اللَّهِ فليسَ له، وإنِ اشْتَرَطَ مِئَةَ مَرَّةٍ»**
+   
    > _"Kenapa suatu kaum membuat persyaratan dengan syarat-syarat yang tidak ada pada Kitabullah. Barangsiapa membuat syarat yang tidak ada pada Kitabullah, maka tidak berlaku sekalipun dia membuat persyaratan seratus kali"._(HR. Bukhari dan Muslim)
    
-    Ironisnya, di negara-negara itu, justru perzinahan, atau bahkan memiliki lebih dari satu pasangan di luar nikah dibiarkan. Yang Allah halalkan mereka larang. Yang Allah haramkan mereka biarkan.
-3. Ada juga yang menanyakan pertanyaan di atas tadi dengan tujuan yang lebih buruk, yaitu menyerang Islam secara keseluruhan. Dengan kata lain, dia ingin menekankan   Dia katakan bahwa syariat Islam dan para ulamanya adalah _misoginis_, yang hanya memenangkan laki-laki dan menindas perempuan. Pandangan ini menjadi salah satu sebab maraknya ateisme di kalangan para pemudi muslimah, di mana setan-setan manusia berhasil mengelabui mereka dengan jargon "Islam dan semua agama itu memuliakan laki-laki dan menindas perempuan".
+Ironisnya, di negara-negara itu, justru perzinahan, atau bahkan memiliki lebih dari satu pasangan di luar nikah dibiarkan. Yang Allah halalkan mereka larang. Yang Allah haramkan mereka biarkan.
 
+**(3)** Ada juga yang menanyakan pertanyaan di atas tadi dengan tujuan yang lebih buruk, yaitu menyerang Islam secara keseluruhan. Dia mencari jalan untuk menyebarkan *syubhat* (kerancuan) bahwa syariat Islam dan para ulamanya adalah _misoginis_, membenci wanita. Bahwa Islam hanya memenangkan laki-laki dan menindas perempuan. Sayangnya tuduhan ini marak menyebar di kalangan pemudi muslimah. Bahkan tidak sedikit yang kemudian menjadi ateis karena termakan syubhat ini. 
 ## Pertanyaan semacam ini muncul karena 2 hal:
 
-**Pertama**: Kuatnya pengaruh pemikiran Barat pada mayoritas kaum muslimin sekarang, di mana mereka pun termakan oleh "kritik-kritik" yang dimunculkan Barat kepada Islam.
+**Pertama**: Kuatnya pengaruh pemikiran Barat pada mayoritas kaum muslimin sekarang, di mana kaum muslimin mudah terpukau dan termakan oleh "kritik-kritik" yang dimunculkan Barat kepada Islam.
 
-**Kedua**: Tersebarnya feminisme di dunia, serta sikap ekstrim/berlebihan dalam upaya memenangkan hak-hak perempuan, yang sampai dalam taraf melucuti hak-hak pria, keluarga, dan masyarakat, bahkan menentang nilai-nilai agama, akhlak, dan moral. Nyatanya, feminisme bukan tentang membela kaum perempuan dari penindasan yang mereka alami, tetapi lebih bertujuan untuk mempromosikan pemikiran-pemikiran dan ideologi-ideolgo yang menentang agama dan hukum-hukumnya. Isu-isu penindasan perempuan itu tidak lain hanya sebagai alat *marketing* atau penglaris saja.
+**Kedua**: Tersebarnya gerakan feminisme, penyetaraan gender, atau gerakan-gerakan apapun yang mengatasnamakan hak-hak perempuan. Bahkan sampai ke tingkat ekstrim/berlebihan dalam upaya memenangkan hak-hak perempuan, di mana hak-hak pria, keluarga, dan masyarakat justru dilucuti. Bahkan sampai menentang nilai-nilai agama, akhlak, dan moral. Nyatanya, feminisme bukan tentang membela kaum perempuan dari penindasan yang mereka alami, tetapi lebih bertujuan untuk mempromosikan pemikiran-pemikiran dan ideologi-ideolgo yang menentang agama dan hukum-hukumnya. Isu-isu penindasan perempuan itu tidak lain hanya sebagai alat *marketing* atau penglaris saja.
 
 Karena 2 alasan itulah, pertanyaan semacam ini banyak muncul di tengah-tengah kaum muslimin. Kalau tidak demikian, maka sepanjang sejarah tidak pernah ada seorang pun yang berpendapat bahwa poligini adalah sebuah cacat atau cela dalam Islam. Mungkin hanya para rahib saja yang menentang. Itu pun karena mereka memang menolak pernikahan karena alasan selibat, bukan karena mereka menganggapnya sebagaik sebuah penindasan terhadap wanita.
 
