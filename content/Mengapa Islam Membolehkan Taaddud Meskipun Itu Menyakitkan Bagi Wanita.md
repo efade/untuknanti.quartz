@@ -1,3 +1,6 @@
+---
+draft: "true"
+---
 
 ## Di antara pertanyaan yang banyak diucapkan: 
 > Mengapa Islam membolehkan poligini untuk laki-laki padahal itu menyakiti wanita? 
