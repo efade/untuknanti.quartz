@@ -1,7 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Catatan Untuk Nanti
+date: 2023-09-29
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
 
